@@ -1,0 +1,3 @@
+- 👋 Hi, I’m DMTT
+- 👀 I’m interested in GAMES-POLITICS
+- 📫 How to reach me twitch.tv/thatboydmt
